@@ -1,1 +1,1 @@
-Inspire by Mitch Koko
+Inspired by Mitch Koko
